@@ -8,4 +8,4 @@
 >
 > B站：(https://space.bilibili.com/3493127316835138?spm_id_from=333.1007.0.0)
 >
-> 抖音：(https://www.douyin.com/user/self?from_tab_name=main)
+> 抖音号：（378848321）         171L
